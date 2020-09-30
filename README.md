@@ -5,4 +5,4 @@ para aprender a utilizar el GitHub,
 gracias por tu tiempo i dale control + w , nuevo truco de fortnite,
 gracias :),
 
-Dale Like si quieres mas.
+ Dale Like si quieres mas.
