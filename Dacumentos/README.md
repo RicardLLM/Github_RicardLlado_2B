@@ -6,4 +6,4 @@ gracias por tu tiempo i dale control + w , nuevo      truco de fortnite,
 gracias :),
 
  Dale Like si quieres mas de tutoriales como estos.
-episodio uno un castor y un gato
+episodio uno un castor 
