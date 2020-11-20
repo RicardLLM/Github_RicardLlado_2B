@@ -5,5 +5,7 @@ para aprender a utilizar el GitHub,
 gracias por tu tiempo i dale control + w , nuevo      truco de fortnite,
 gracias :),
 
- Dale Like si quieres mas de tutoriales como estos.
-hola mundo como va todo
+
+episodio uno un castor y un gato
+pero bueno willy que es esto
+
